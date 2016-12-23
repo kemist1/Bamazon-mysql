@@ -1,0 +1,1 @@
+/Users/admin/Desktop/Bamazon-mysql/Screen Shot 2016-12-22 at 11.16.43 PM.png/Users/admin/Desktop/Bamazon-mysql/Screen Shot 2016-12-22 at 11.16.29 PM.png/Users/admin/Desktop/Bamazon-mysql/Screen Shot 2016-12-22 at 11.15.54 PM.png
